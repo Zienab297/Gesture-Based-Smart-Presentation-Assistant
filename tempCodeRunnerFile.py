@@ -1,0 +1,1 @@
+D:\EJUST\Senior year\Spring\Computer Vision\Computer Vision Project\Hand-Gesture-Presentation-System-master\Images
